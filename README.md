@@ -1,4 +1,4 @@
-<p align="center"> #### All my Skins </p>
+#### <p align="center"> All my Skins </p>
 
 ### [「Wlop」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9g9dg8)
 ![Wlop](https://ayreth.s-ul.eu/Z0iEx2Nx.png)
