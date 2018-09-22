@@ -18,4 +18,6 @@
 ### [「ももこ」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/8y8w9e)
 ![ももこ](https://ayreth.s-ul.eu/QfG8gbwl.png)
 
-### <p align="center"> [My Discord](https://discord.gg/95z4TGz) </p>
+
+
+### <p align="center"> [❄ My Discord](https://discord.gg/95z4TGz) </p>
