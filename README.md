@@ -20,4 +20,4 @@
 
 
 
-### <p align="center"> [❄ My Discord](https://discord.gg/95z4TGz) </p>
+### <p align="center"> [❄ My Discord](https://discord.gg/95z4TGz ❄) </p>
