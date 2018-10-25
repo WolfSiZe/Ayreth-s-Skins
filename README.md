@@ -1,10 +1,13 @@
 #### <p align="center"> All my Skins </p>
 
+### [「Wlop」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9g9dg8)
+![Wlop](https://ayreth.s-ul.eu/X02yQ9F6.png)
+
 ### [「Azur Lane」 based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9hrfrz)
-![Wlop](https://ayreth.s-ul.eu/sQ6RDC9J.png)
+![「Azur Lane2](https://ayreth.s-ul.eu/sQ6RDC9J.png)
 
 ### [「Azur Lane」 based skin | Alternate Gameplay | [HD]](https://www.reddit.com/r/OsuSkins/comments/9hrfrz)
-![Wlop](https://ayreth.s-ul.eu/8Ke0HeQd.png)
+![「Azur Lane1](https://ayreth.s-ul.eu/8Ke0HeQd.png)
 
 ### [「Hiten」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9920b5)
 ![Hiten](https://ayreth.s-ul.eu/G5EJdtjY.png)
