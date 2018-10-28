@@ -19,7 +19,7 @@
 ![千夜QYS3](https://ayreth.s-ul.eu/SmskTAJS.png)
 
 ### [「ももこ」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/8y8w9e)
-![ももこ](https://ayreth.s-ul.eu/sQ6RDC9J.png)
+![ももこ](https://ayreth.s-ul.eu/vQSt6hyB.png)
 
 
 
