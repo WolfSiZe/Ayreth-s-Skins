@@ -2,7 +2,7 @@
 
 
 ### [「Ayreth 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/a285wq)
-![Ayreth ](https://imgur.com/TQkyWOW)
+![Ayreth ](https://ayreth.s-ul.eu/BXDGWoHU.png)
 
 ### [「Bluepointed's」 Skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9ws3ak)
 ![BluePointed](https://ayreth.s-ul.eu/BXDGWoHU.png)
