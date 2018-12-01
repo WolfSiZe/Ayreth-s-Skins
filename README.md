@@ -1,5 +1,12 @@
 #### <p align="center"> All my Skins </p>
 
+
+### [「Ayreth 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/a285wq)
+![Ayreth ](https://imgur.com/TQkyWOW)
+
+### [「Bluepointed's」 Skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9ws3ak)
+![BluePointed](https://ayreth.s-ul.eu/BXDGWoHU.png)
+
 ### [「Wlop」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9g9dg8)
 ![Wlop](https://ayreth.s-ul.eu/X02yQ9F6.png)
 
