@@ -11,7 +11,7 @@
 ![Wlop](https://ayreth.s-ul.eu/OmsIEG23.png)
 
 ### [「Azur Lane」 based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9hrfrz)
-![「Azur Lane2](https://ayreth.s-ul.eu/sQ6RDC9J.png)
+![「Azur Lane2](https://ayreth.s-ul.eu/7BcC1N5R.png)
 
 ### [「Azur Lane」 based skin | Alternate Gameplay | [HD]](https://www.reddit.com/r/OsuSkins/comments/9hrfrz)
 ![「Azur Lane1](https://ayreth.s-ul.eu/7BcC1N5R.png)
