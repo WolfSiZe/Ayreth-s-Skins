@@ -1,5 +1,7 @@
 #### <p align="center"> All my Skins </p>
 
+### [「Hedonism」 [HD]](https://www.reddit.com/r/OsuSkins/comments/al49lf)
+![Hedonism ](https://hedonism.s-ul.eu/a5dKpoV3)
 
 ### [「Ayreth 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/a285wq)
 ![Ayreth ](https://ayreth.s-ul.eu/6d1GS1Pb.png)
